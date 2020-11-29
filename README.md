@@ -3,5 +3,5 @@ just another edit
 
 hi everyone!
 
-i am here to learn to develop. my most favourite experience is traveling
+my most favourite experience is traveling and flying overseas
 pancakes made without eggs are delicious.
